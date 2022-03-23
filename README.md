@@ -1,5 +1,5 @@
 # *TikTok*
 
--Watching short videos
--IDK ignoring the displeasure of fleeting life
--entertainment :D
+- Watching short videos
+- IDK ignoring the displeasure of fleeting life
+- entertainment :D
